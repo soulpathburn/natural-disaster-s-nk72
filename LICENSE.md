@@ -1,4 +1,4 @@
-#  
+#  instant Script for natural disaster survival offers the most advanced natural disaster survival Script, with auto-farm and auto-sell. Perfect for
 
 
 
